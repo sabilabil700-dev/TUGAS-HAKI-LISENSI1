@@ -20,7 +20,7 @@ Komponen berikut merupakan bagian dari karya HISANA STOCK:
 
 **Pernyataan hak cipta:**
 
-> Hak Cipta © 2026 Rafka Priandani. Seluruh hak dilindungi undang-undang.
+> Hak Cipta © 2026 Salsabil Firdaus. Seluruh hak dilindungi undang-undang.
 
 ### Merek dan Identitas Visual
 
