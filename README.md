@@ -19,4 +19,4 @@ dengan lingkaran di tengah dengan warna merah dan
 dominan kuning.
 
 Logo:
-https://drive.google.com/file/d/1BOTnEBmP0lO6JbBhrjB-F_qqTrYo94GD/view?usp=drivesdk
+<img width="783" height="987" alt="image" src="https://github.com/user-attachments/assets/adee763d-f60a-4496-bd27-a6db12f2d9a0" />
